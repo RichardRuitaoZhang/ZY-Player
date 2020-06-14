@@ -81,7 +81,7 @@
 ![06白色.png](https://i.loli.net/2020/05/18/UgiVZ89dhkuxDBI.png)
 7. 绿色主题皮肤 ⇣ ↓
 ![07绿色.png](https://i.loli.net/2020/05/18/4d2UnFRECm7vyJQ.png)
-8. 粉色色主题皮肤 ⇣ ↓
+8. 粉色主题皮肤 ⇣ ↓
 ![08粉色.png](https://i.loli.net/2020/05/18/PLlEfzd8mSC9vMW.png)
 
 ### 重要: 
